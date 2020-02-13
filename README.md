@@ -1,2 +1,2 @@
 # home-work-day-1
-i am try myself how to submit the home work 
+i am trying to submit home work for day 1
